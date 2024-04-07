@@ -8,3 +8,6 @@ Overall capabilities:
 -Automous (optional)
 -Semi-Automatic (optional)
 -etc.
+
+----
+Can be integrated into a business, company, corporation, and even entrerprise.
