@@ -12,7 +12,7 @@ Overall capabilities:
 •etc.
 ```
 ----
-Can be integrated into a business, company, corporation, and even entrerprise.
+Can be integrated into a business, company, corporation, and even entrerprise. Can also be utilized for personal projects.
 
 ----
 Innovation is the practical implementation of ideas that result in the introduction of new goods or services or improvement in offering goods or services; a focus on newness, improvement, and spread of ideas or technologies. Innovation is related to, but not the same as, invention: innovation is more apt to involve the practical implementation of an invention (i.e. new / improved ability) to make a meaningful impact in a market or society, and not all innovations require a new invention. Innovation, for its part, can refer to something new or. to a change made to an existing product, idea, field, or practice. New or different takes in old practice or methods (not that there is nothing wrong with certain old or traditional methodology on some things. But putting a different spin all the while preceiving the old, or traditional way for those who wish to keep it).
