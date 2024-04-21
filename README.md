@@ -9,6 +9,7 @@ Overall capabilities:
 •Recursive self-improvement
 •Automous (optional)
 •Semi-Automatic (optional)
+•Works across the board
 •etc.
 ```
 ----
